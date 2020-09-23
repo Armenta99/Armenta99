@@ -16,7 +16,7 @@
 
 😄 Sabes, me gusta mucho jugar y escuchar musica mientras hago cualquier cosa.
 
-👯 Vivo en la casa de mis padres donde trabajo todos los días en la tienda familiar de mis padres.
+👯 Vivo en la casa de mis padres donde trabajo todos los días en la tienda de ellos.
 
 💬 Me gusta ayudar a alguien cuando tiene problemas con un tema que yo conozco. 
 
